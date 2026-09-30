@@ -1,4 +1,4 @@
-Hai ! i’m just the alt of tails (@lunarpools)
+Hai ! i’m just the alt of tails  [(@lunarpools)](https://github.com/lunarpools)
 
 account created to cope. i’m almost always gonna be sitting next to my main so if you wanna int then talk to tails!
 
